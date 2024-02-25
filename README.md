@@ -1,2 +1,2 @@
-# Teh
-Tea tesnet
+# TEA TESNET
+VERY NICE PROJECT
